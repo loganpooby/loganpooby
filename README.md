@@ -1,5 +1,5 @@
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=thanossu&color=9b4577&style=for-the-badge&label=BANG+BANG!&abbreviated=true" />⠀
+<img src="https://komarev.com/ghpvc/?username=thanossu&color=684361&style=for-the-badge&label=🍷&abbreviated=true" />⠀
 <p align="center">
-<a href="https://www.tumblr.com/daekiyu"><img src="https://i.postimg.cc/fbYhZK9R/Untitled1516-20260330175133.png"</a>
+<a href="https://www.tumblr.com/zanta_indie"><img src="https://i.postimg.cc/c1h4m1Ym/Untitled1638-20260602174234-(1).png"</a>
